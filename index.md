@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+My name is Ronit Kathuria, and I am a high school student from New Delhi India. 
